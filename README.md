@@ -49,3 +49,5 @@ Soy fan de ver videos en yt, por lo que a mi me gusta un poco de perderme en edi
  [Instagram](https://www.instagram.com/solitaryvessel?igsh=MTd0OHUzdTJ1ODQ5aQ%3D%3D&utm_source=qr) - Hago reels como publicar dibujos.
 
  [Tiktok](https://www.tiktok.com/@solitaryvessel?_t=8pDDrKqfnXC&_r=1) - Los mismos reels de ig pero en tiktok.
+
+ waza ostia trio pulimino
