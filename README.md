@@ -51,3 +51,5 @@ Soy fan de ver videos en yt, por lo que a mi me gusta un poco de perderme en edi
  [Tiktok](https://www.tiktok.com/@solitaryvessel?_t=8pDDrKqfnXC&_r=1) - Los mismos reels de ig pero en tiktok.
 
  [waza al anterior repositorio](https://github.com/FlanVessel/nuevo-repositorio)
+
+ [Nuevo md](/practica-5.md)
