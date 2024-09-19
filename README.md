@@ -57,3 +57,5 @@ Soy fan de ver videos en yt, por lo que a mi me gusta un poco de perderme en edi
  [Nuevo git del nuevo repositorio de Ramas](https://github.com/FlanVessel/nuevo-git)
 
  [Etiquetas](https://github.com/FlanVessel/nuevo-git)
+
+ [Practica 8](/practica-8.md)
